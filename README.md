@@ -15,7 +15,7 @@ kjw5.xyz<br>
 7n3d.xyz<br> 
 n1ze.xyz<br>
 u4z6.xyz<br>  
-x2sg.xyz<br>  
+
 
 备用主播版下载地址如下<br>
 
